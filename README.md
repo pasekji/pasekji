@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @pasekji, future cyber security expert :godmode:
 - 👀 I’m interested in learning new stuff especially in CS :computer: and other exact science fields :books:. 
 - 🌱 I’m currently learning graph theory and discrete math. 
-- 📫 You can reach me at pasekjiri@pm.me
+- 📫 You can reach me at pasekji1@gmail.com
